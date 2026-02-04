@@ -1,4 +1,4 @@
-/* scroll-timeline/scripts.js */
+/* scroll-timeline/js/scripts.js */
 "use strict";
 
 $(function () {
