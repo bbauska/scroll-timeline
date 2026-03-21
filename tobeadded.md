@@ -1,3 +1,131 @@
+<h3>1941</h3>
+<p><b>Early spring — 9:00–9:30 p.m.</b> Rev. 
+	  <a href="https://www.findagrave.com/memorial/13590056/william-guy-huffman">
+	  William Guy Huffman</a> of the Red Star Baptist Church in Cape Girardeau, Missouri, is summoned 
+	  to an apparent airplane crash one Saturday. When he arrives at the scene, about 15 miles from 
+	  town, he finds a weird-looking craft “broken and scattered all around,” but smooth and rounded 
+	  without edges or seams. A cockpit with a chair facing an instrument panel remains intact. Police 
+	  officers, military men, and plain-clothes individuals are sifting through the wreckage. He also 
+	  sees three non-human bodies about 4 feet tall with long arms, oversized heads, and large eyes. 
+	  He says a prayer for them, and afterward sees someone take a photo of an alien propped up by the 
+	  arms between two plainclothesmen. The following evening, he is given a copy of the photo by a 
+	  member of his congregation (thought to be 
+	  <a href="https://www.findagrave.com/memorial/15533576/garland-d-fronabarger">
+	  Garland D. Fronabarger</a>), but he loans it later to someone who never returns it. Huffman’s wife 
+	  <a href="https://www.findagrave.com/memorial/27616322/floy-m_-huffman">
+	  Floy</a> reveals the story to her granddaughter, Charlette Mann, on her deathbed in 1984, who 
+	  relates the story to ufologist 
+	  <a href="https://en.wikipedia.org/wiki/Leonard_H._Stringfield">
+	  Leonard Stringfield</a>. (Paul Blake Smith, MO41: The Bombshell before Roswell, W&B Publishers, 
+	  2015; Clark III 343–344; Billy Booth, “
+	  <a href="https://web.archive.org/web/20201102060859/https:/www.liveabout.com/cape-girardeau-missouri-crash-3293442">
+	  1941 Cape Girardeau, Missouri Crash</a>,” liveabout.com, February 5, 2019; Kevin Randle, “
+	  <a href="http://kevinrandle.blogspot.com/2019/12/cape-girardeau-ufo-crash-1941.html">
+	  Cape Girardeau UFO Crash, 1941</a>,” A Different Perspective, December 5, 2019; Clark IV 379–380)</p>.</li>
+            </ul>
+          </section>     
+        </section>
+        <section class="year">
+          <h3>1947</h3>
+          <section>
+            <h4>July</h4>
+            <ul>
+              <li>      <p><b>July 4 — 1:05–5:30 p.m.</b> Many people in Portland, Oregon—including KOIN newsman Frank 
+      Cooley, deputy Clark County Sheriff 
+      <a href="https://www.findagrave.com/memorial/153181842/fred-c-krives">
+      Fred Krives</a>, Portland police officer <a href="https://www.findagrave.com/memorial/3913015/kenneth-a-mcdowell">
+      Kenneth A. McDowell</a>, 
+      and Oregon highway patrol Sgt. Claude Cross—view five large discs moving at high speed to the 
+      east, two flying south and three to the east, with an oscillating or wobbling motion, sudden 
+      90° turns or zigzagging. Radio reports alert other officers (including 
+      <a href="https://www.findagrave.com/memorial/36301214/walter-arnold-lissy">
+      Walter Lissy</a>, 
+      <a href="https://www.findagrave.com/memorial/621613/robert-clark-ellis">
+      Robert Ellis</a>, and 
+      <a href="https://www.findagrave.com/memorial/3922233/earl-f-patterson">
+      Earl Patterson</a>, all WWII veterans) who see the metallic objects that look like a
+      disc or hubcap or pie-pan or half-moon flashing in the sun. No vapor trail or noise (except 
+      possible humming) is reported. (NICAP, “
+      <a href="http://www.nicap.org/470704portland_dir.htm">
+      Seven Discs Observed by Many Witnesses</a>”; 
+      <a href="https://www.nicap.org/bb/BB_Unknowns.pdf">Sparks</a>, p. 
+      20; “Air Liner Crew Confirms Flying Discs over State; Many Seen during Day over City,” 
+      Portland Oregonian, July 5, 1947; Project 1947, “
+      <a href="https://www.project1947.com/fig/1947c.htm">
+      UFO Reports, 1947</a>”; Bloecher, 
+      <a href="https://nicap.org/waves/Wave47Rpt/ReportUFOWave1947_SectionII.htm">
+      pp. II-9</a>, 
+	  <a href="http://nicap.org/waves/Wave47Rpt/ReportUFOWave1947_SectionIII.htm">
+      III-15</a>; James E. McDonald, “
+      <a href="https://www.project1947.com/shg/symposium/mcdonald.html">
+      Statement on Unidentified Flying Objects</a>,” in Symposium on 
+      Unidentified Flying Objects, Hearings, US House Committee on Science and Astronautics, 90th 
+      Cong., 2nd Sess., July 29, 1968, p. 58; Michael David Hall and Wendy Ann Connors, “
+      <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2023%20No.%204%20Winter%201998.pdf">
+      Alfred Loedding: New Insight on the Man behind Project Sign</a>,” IUR 23, no. 4 (Winter 1998): 5)</p>
+.</li>
+              <li>      <p><b>July 5</b> — Following the rain the night before, 
+      <a href="https://www.findagrave.com/memorial/9454979/william-ware-brazel">
+      Brazel</a> inspects the pastures surrounding the J. B. Foster ranch house southeast of Corona, 
+      New Mexico. Riding with him is the young son of the Proctors, 
+      <a href="https://www.findagrave.com/memorial/80134486/william-d-proctor">
+      William D. Proctor</a>. During the inspection, Brazel discovers a large debris 
+      field. Scattered on the slopes and into the sinkhole and depressions are plastic-like beams, 
+      pieces of lightweight balsawood-like material only stronger, light metallic foil (which 
+      doesn’t stay bent or folded, resumes its original shape, and won’t tear), and heavy-gauge 
+      monofilament. The debris is thick enough that the sheep refuse to cross the field and are 
+      driven around it to water more than a mile away. Brazel, taking a few scraps of the material, 
+      heads to the home of his closest neighbors, 
+      <a href="https://www.findagrave.com/memorial/99049640/floyd-proctor">
+      Floyd</a> and 
+      <a href="https://www.findagrave.com/memorial/144211794/susan-loretta-proctor_hodges">
+      Loretta Proctor</a>. He shows them “a 
+      little sliver” of material that he can neither burn nor cut. Some of the beams have symbols 
+      on them that reminds Brazel of Chinese ideograms. The Proctors suggest he take it into town 
+      to show the sheriff. (Don Schmitt and Kevin D. Randle, “
+      <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2015%20No.%204%20July-Aug.%201990.pdf">
+      Did a Balloon Crash at Roswell?</a>” IUR 
+      15, no. 4 (July/Aug. 1990): 4–5; Kevin D. Randle and Donald R. Schmitt, The Truth about the 
+      UFO Crash at Roswell, Evans, 1994, 
+      <a href="https://archive.org/details/truthaboutufocra0000rand/page/26/mode/2up">pp. 27–32</a>, 
+      <a href="https://archive.org/details/truthaboutufocra0000rand/page/160/mode/2up">161</a>; Michael D. Swords, “
+      <a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2022%20No.%203%20Fall%201997.pdf">
+      Roswell: Clashing Visions of the Possible</a>,” IUR 22, no. 3 (Fall 1997): 11–13, 33–35; Robert A. Galganski, “<a href="https://cufos.org/PDFs/IUR%20issues/IUR%20Vol.%2025%20No.%204%20Winter%202000-2001.pdf">
+      The Roswell Debris Field: Size Doesn’t Matter</a>,” IUR 25, no. 4 (Winter 2000–2001): 14–19, 30; 
+      Donald R. Burleson, “
+      <a href="https://cufos.org/PDFs/Roswell/roswell_traj.pdf">
+      Roswell Trajectory Feasibility</a>,” Center for UFO Studies; Michael D. 
+      Swords, GrassRoots UFOs: Case Reports from the Timmerman Files, Fund for UFO Research, 2005, 
+      pp. 125–127; Benson Saler, Charles A. Ziegler, and Charles B. Moore, 
+      <a href="https://archive.org/details/ufocrashatroswel0000sale">
+      UFO Crash at Roswell: 
+      The Genesis of a Modern Myth</a>, Smithsonian, 2010; “
+      <a href="https://www.youtube.com/watch?v=W5y7i6me2oY">
+      Recollections of Roswell Part One</a>,” NICAP 
+      Official YouTube channel, June 12, 2021; “
+      <a href="https://www.youtube.com/watch?v=7R9R6HOQo00">
+      Recollections of Roswell Part Two</a>,” NICAP Official 
+      YouTube channel, June 13, 2021; “
+      <a href="https://www.youtube.com/watch?v=oHi9TvawmtE">
+      P1 N1: Bill Brazel</a>,” NICAP Official YouTube channel, June 
+      13, 2021; Kevin D. Randle, “
+      <a href="https://journalofscientificexploration.org/index.php/jse/article/view/2635">
+      A Grounded Theory Update on the Roswell UFO Incident</a>,” Journal 
+      of Scientific Exploration 36, no. 2 (Summer 2022): 264–288; Kevin D. Randle, “
+      <a href="https://kevinrandle.blogspot.com/2022/12/roswell-crash-date-and-mogul-problem.html">
+      Roswell Crash 
+      Date and Mogul Problem</a>,” A Different Perspective, December 27, 2022; Graff 3; “
+      <a href="https://www.youtube.com/watch?v=p-j9JXuGLRI">
+      Bill Brazel Jr. Talks about His Father Mack, Discoverer of the 1947 Roswell UFO Wreckage</a>,” Eyes on Cinema 
+      YouTube channel, June 29, 2024; “
+      <a href="https://www.youtube.com/watch?v=TvM53IV7eMY">
+      Witnesses and Researchers Talk About the Roswell UFO Crash in an Excellent In-Depth 1993 Documentary</a>,” Eyes On Cinema YouTube channel, September 17, 
+      2024; Anthony Bragalia, “
+      <a href="https://www.ufoexplorations.com/">
+      The Man Who Read Alien Language: Government Scientist May Have 
+      Deciphered Roswell UFO Debris Symbols</a>,” UFO Explorations, June/July 2025)</p>
+
+
 The United States Authorities have established that flying saucers are manned by visitors 
 from outer space. They are trying to work out a method Of breathing and staying alive in 
 our atmosphere before landing and establishing contact. 
